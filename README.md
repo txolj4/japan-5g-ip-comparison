@@ -1,0 +1,1 @@
+# japan-5g-ip-comparison
